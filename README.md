@@ -8,10 +8,14 @@ Do you like the stuff me made for you
 YOU: MY ASSETS BELONG To Brandon NOW
 
 
-## 黑鬼
+## 誣言 慞氣 黑鬼 
 
 小紅書 + 抖音 也是 
 
 pretend to be a good guy on Twitter +  Instagram
 
 還想搞Jess?
+
+空氣汙染問題
+
+沒高鐵
