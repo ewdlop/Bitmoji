@@ -14,8 +14,10 @@ YOU: MY ASSETS BELONG To Brandon NOW
 
 pretend to be a good guy on Twitter +  Instagram
 
-還想搞Jess?
+還想惡搞Jess?
 
 烏煙+空氣汙染問題
 
 沒高鐵
+
+真的惡整
