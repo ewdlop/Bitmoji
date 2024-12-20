@@ -21,3 +21,7 @@ pretend to be a good guy on Twitter +  Instagram
 沒高鐵
 
 真的惡整
+
+刻意汙衊華人
+
+我同事social security 出問題
