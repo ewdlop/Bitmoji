@@ -6,3 +6,6 @@ Do you like the stuff me made for you
 
 
 YOU: MY ASSETS BELONG To Brandon NOW
+
+
+小紅書 + 抖音 也是 
