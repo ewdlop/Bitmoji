@@ -25,3 +25,5 @@ pretend to be a good guy on Twitter +  Instagram
 刻意汙衊華人
 
 我同事social security 出問題
+
+## Maybe China and USA should cut the dude in half and keep each piece as a souvenir 
